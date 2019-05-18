@@ -2,4 +2,4 @@
 
 这里还什么都没有呢。
 本博客基于GitHub Pages建设。
-<font color=#0099ff size=7 face="黑体">color=#0099ff size=72 face="黑体"</font>
+和谐自由和谐和谐文明友善法治和谐民主文明友善法治和谐自由和谐敬业和谐敬业和谐爱国
